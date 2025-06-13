@@ -1,2 +1,2 @@
-# Sahabetburdagitr
 Sahabet – Güvenilir Bahis ve Casino Sitesi 2025
+Sahabet, spor bahisleri, canlı bahis, casino ve slot oyunlarıyla kullanıcılarına güvenilir ve eğlenceli bir platform sunar. Güncel giriş adresiyle kesintisiz erişim sağlar. Hızlı para yatırma-çekme işlemleri, yüksek oranlar ve 7/24 canlı destek hizmetiyle fark yaratır. Yeni üyelere özel bonuslar ve promosyonlarla kazancınızı artırın. Sahabet dünyasına şimdi katılın, avantajları kaçırmayın!
